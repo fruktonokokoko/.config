@@ -1,1 +1,1 @@
-feel free to use those themes if you like them
+feel free to use those configs if you like them
